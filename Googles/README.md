@@ -1,1 +1,1 @@
-3D Printable Googles By David Karuri Gakure (@GakureKaruri)
+3D Printable Googles By [@GakureKaruri](https://github.com/GakureKaruri)
