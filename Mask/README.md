@@ -1,1 +1,1 @@
-3D printable mask by Warefab
+3D printable mask by @Warefab
