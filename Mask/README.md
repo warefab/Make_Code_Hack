@@ -1,1 +1,1 @@
-3D printable mask by [id/name]: http://link-url/ @Warefab
+3D printable mask by [@Warefab]
