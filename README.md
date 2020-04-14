@@ -1,3 +1,3 @@
 # Make_Code_Hack
  Easy+fun projects
-3D printable mask by @warefab
+ Made With love by @warefab + awesome community makers+coders+hackers
