@@ -1,1 +1,1 @@
-3D printable mask by <link>@Warefab
+3D printable mask by <link>@warefab
